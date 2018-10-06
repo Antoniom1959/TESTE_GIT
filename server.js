@@ -1,1 +1,0 @@
-Antonio é filho de Deus e também todos da sua familia
